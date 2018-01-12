@@ -2,7 +2,11 @@
 
 **标出每张图片给出自己什么灵感**
 
-毛笔字体笔刷和笔触
+毛笔字体笔刷和笔触以及其他字体
+
+**链接：[https://pan.baidu.com/s/1ggObHKZ ](https://pan.baidu.com/s/1ggObHKZ)**
+
+密码：42gq
 
 #### **pic1：** ####
 
